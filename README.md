@@ -1,3 +1,3 @@
 ## Nazanin Izadi
-```I,m a programmer chick```
+```Hi. I,m a programmer chick😆.```
 
